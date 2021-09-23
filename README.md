@@ -10,7 +10,7 @@
 ## ABOUT ME
 ## ABOUT ME
 
-- I'm Working for [pigasus](hhtps://t.me/pigasusSupport)
+- I'm Working for [pigasusTeam](hhtps://t.me/pigasusSupport)
 - I'm YouTuber
 
 - 🇮🇳 i'm Indian.
