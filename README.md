@@ -1,4 +1,4 @@
-<a href="https://telegram.me/ctzfamily"><img align="center" src="https://github.com/ctzfamily/Ctzfamily/blob/main/https://telegra.ph/file/89da543db58bd01accda4.jpg"/></a>
+<a href="https://telegram.me/ctzfamily"><img align="center" src="https://github.com/ctzfamily/Ctzfamily/blob/main/IMG_20210921_224008_888.jpg"/></a>
 
 ### Hi there I'm Mr.Nandha
 
